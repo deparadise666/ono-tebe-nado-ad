@@ -1,1 +1,1 @@
-https://github.com/KiraShadrina15/ono-tebe-nado-ad
+https://github.com/deparadise666/ono-tebe-nado-ad
